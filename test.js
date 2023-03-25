@@ -1,6 +1,24 @@
+<<<<<<< HEAD
+blauuuuuuuuu
 const test = "test"
-jhgkjblkbv
-bvb,m.,
-	 mnm,n,
-hgkln.,mn.m.,n,
-ukglkuhbvbbj;w	
+jg
+bmn
+hd
+bbjgh
+jghfhjb
+bhvbcvy87
+nvbn,hcx 
+nbj
+bft
+bvbm
+mnmb
+kjuytfd
+jgg
+mb
+mnmnbxshik
+nkbmm
+fhgjnmbbc
+hgj
+vhgkj
+ghgm n
+
